@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Senshyy
+- 👀 I’m interested in yy
+- 🌱 I’m currently learning YY
+- 💞️ I’m looking to collaborate on yy with @Y0ung-DST
+- 📫 How to reach me yy@yy.yy
